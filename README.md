@@ -9,5 +9,8 @@
 
 maria.rovigo@escola.pr.gov.br
 
+![](https://media1.tenor.com/m/IHAsiGdH4QMAAAAC/dog-cute-dog.gif)
 
-![](https://media1.tenor.com/m/zmyMkoQ_YoUAAAAd/scared-dog.gif)
+
+
+
